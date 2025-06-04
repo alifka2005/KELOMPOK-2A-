@@ -1,6 +1,6 @@
 # KELOMPOK-2A-
 
-Muhammad Baso Alifka Agnur
+Baso Muhammad Alifka Agnur
 
 Indah
 
