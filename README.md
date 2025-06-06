@@ -1,11 +1,11 @@
 # KELOMPOK-2A-
 
-Baso Muhammad Alifka Agnur
+Baso Muhammad Alifka Agnur (H061241015)
 
-Indah
+Indah (H061241004)
 
-Dirga Alin Cristin Rero
+Dirga Alin Cristin Rero (H061241016)
 
-Siti Sarah Chairani
+Siti Sarah Chairani (H061241022)
 
-A. Achmad Raihan.AM
+A. Achmad Raihan.AM (H061241007)
